@@ -1,0 +1,4 @@
+
+What do you do when things don’t go smoothly at work? How do you deal with difficult situations? What do you do when something goes wrong? The best way to respond to this question is to give an example of how you have successfully handled stress in a previous job.
+
+Avoid claiming that you never, or rarely, experience stress. Not only is this difficult to believe, but it could also lead the interviewer to conclude that you’ve only worked in low-pressure environments and therefore aren’t equipped to handle a difficult situation. Rather, formulate your answer in a way that acknowledges workplace stress and explains how you’ve overcome it, or even used it to your advantage.
